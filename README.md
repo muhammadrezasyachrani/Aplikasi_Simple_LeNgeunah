@@ -1,1 +1,0 @@
-# Aplikasi-Simple-LeNgeunah
